@@ -1,4 +1,4 @@
-# 👩‍💻 Hi, I'm [Her Name]
+# 👩‍💻 Hi, I'm [Tuibaa altaf bhat]
 
 ### 🔐 B.Tech CSE Student | Cybersecurity Enthusiast | Python Developer
 
